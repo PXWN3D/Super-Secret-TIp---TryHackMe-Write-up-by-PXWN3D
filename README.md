@@ -1,0 +1,1 @@
+# Super-Secret-TIp---TryHackMe-Write-up-by-PXWN3D
